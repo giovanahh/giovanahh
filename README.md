@@ -1,4 +1,9 @@
 ## Bem vindo ao meu perfil 
 
-Giovanna vitoriano nascimento
-15 anos 
+Meu nome é Giovanna 
+
+- 15 anos 
+
+- Gosto de cuidados no cabelo
+
+- Moro em São Paulo
